@@ -1,0 +1,1 @@
+# DesiZaharieva-DesiZaharieva-QA-Fundamentals-and-Manual-Testing
